@@ -1,16 +1,6 @@
 
 ### Hi there , I'm [pp-china !](https://www.opbe.top)👋
 
-<br />
-
-《相见欢·无言独上西楼》
-
-无言独上西楼，月如钩。
-寂寞梧桐深院锁清秋。
-剪不断，理还乱，是离愁。
-别是一般滋味在心头。
-
-<br />
 
 **Languages and Tools:**  
 
